@@ -4,7 +4,7 @@
 - 👀 My interests include backend, riichi mahjong, chess, music and video games
 - 🌱 I’m currently working on a CV website to use as an alternative CV, hone my skills and keep track of my progress
 - 📫 How to reach me:
-  - Discord: LeizzKa#0127
+  - Discord: LeizzKa#8621
   - Telegram: @LeizzKa
 
 "On towards new disappointments"
